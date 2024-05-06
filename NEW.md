@@ -1,1 +1,0 @@
-Eto fail novii
